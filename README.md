@@ -1,0 +1,3 @@
+legkomolyabb házifeladat
+
+⎛⎝ ≽  >  ⩊   < ≼ ⎠⎞
